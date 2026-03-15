@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔎 Apprenti chercheur en Humanités Numériques à l'ENSSIB<br>📖 Spécialisé en Lettres Moderne<br>🔮 J'axe mes recherches sur la littérature ésotérique de la Renaissance <br> 🪄Je travaille actuellement sur une édition des _Prophéties_ de Nostradamus. 
+🔎 Apprenti chercheur en Humanités Numériques à l'ENSSIB<br>📖 Spécialisé en Lettres Modernes à l'université Jean Moulin<br>🔮 J'axe mes recherches sur la littérature ésotérique de la Renaissance <br> 🪄Je travaille actuellement sur une édition des _Prophéties_ de Nostradamus. 
 
 
 ## 🌐 Socials:
